@@ -6,8 +6,8 @@ https://github.com/TowerMo159/fulihome
 
 最新地址
 
-baba22025.xyz
+https://baba22025.xyz/
 
-weibo88669.xyz
+https://weibo88669.xyz/
 
-tian27538.lol
+https://ian27538.lol/
